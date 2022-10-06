@@ -1,1 +1,1 @@
-# Young-minds
+# young ideas
